@@ -1,4 +1,4 @@
-# 
+# instant Adobe Photoshop for PC plugins is the best Adobe Photoshop for PC plugins with custom-brushes and table-creation. Safe, reliable, and optimized for maximum performance.
 
 
 
